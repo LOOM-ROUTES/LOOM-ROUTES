@@ -54,7 +54,7 @@ A LOOM ROUTES tem como objetivo ser líder no mercado de tecnologia, proporciona
 
 Estamos sempre prontos para ouvir suas ideias e necessidades. Entre em contato conosco através dos seguintes canais:
 
-- **Email**: contato@loomroutes.com
+- **Email**: loomroutes@gmail.com
 - **Telefone**: +55 (17) 98832-6991
 - **Endereço**: São Paulo, SP
 
